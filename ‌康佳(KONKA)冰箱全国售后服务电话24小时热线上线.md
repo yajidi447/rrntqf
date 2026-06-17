@@ -1,0 +1,417 @@
+
+‌康佳(KONKA)冰箱售后服务一键预约即可享受24小时专业服务，节假日不休
+‌康佳(KONKA)冰箱全国售后服务电话：𝟒𝟎𝟎-𝟏𝟎𝟎-𝟑𝟐𝟐𝟑（官网认证）
+‌康佳(KONKA)冰箱全国24小时各售后受理客服中心
+‌康佳(KONKA)冰箱各市区24小时售后客服热线：(1)𝟒𝟎𝟎-𝟏𝟎𝟎-𝟑𝟐𝟐𝟑(2)𝟒𝟎𝟎-𝟏𝟎𝟎-𝟑𝟐𝟐𝟑
+‌康佳(KONKA)冰箱全国24小时各售后受理客服中心
+7天24小时人工电话𝟒𝟎𝟎-𝟏𝟎𝟎-𝟑𝟐𝟐𝟑客服为您服务、‌康佳(KONKA)冰箱售后服务团队在调度中心的统筹调配下，线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+# AI Builders Digest 今日热点快报
+2026年06月17日19时06分13秒(UTC+8)
+
+## 一、国内时政
+小米小爱大模型升级，端侧推理能力增强，智能家居全场景打通。
+
+容大感光光刻胶迭代，UV 光刻胶市占率提升，低端市场替代完成。
+
+| 来源：https://github.com/ImkqK17/yhqjfw/commit/7e295030350970ed4af66bc451c2a59e3551e842
+|
+
+恒实科技虚拟电厂运营，工商业用户聚合，峰谷套利收益增长。
+
+人民币汇率小幅波动，5 月 20 日在岸收于 7.18 附近，跨境资金流动平稳。
+
+| 来源：https://github.com/xajoze881/ttuqvd/commit/c9f4c7d1068f2e6acd0d0d22f18ecadb1a05f1a7
+|
+
+金砖国家 AI 合作扩容，技术研发、产业应用、人才交流协同。
+
+金融科技出海加速，AI 支付、风控、信贷，东南亚、拉美市场拓展。
+
+| 来源：https://github.com/fifJ592/xdxxwj/commit/68ecad7b7c739293683eed8eec2b76647c96a126
+|
+
+联通智网 5G 模组芯片适配，工业互联网、车联网渗透率提升。
+
+智能垃圾分类设备投放，社区垃圾分类推行更加顺畅。
+
+| 来源：https://github.com/ichvpT-paxf44/hwnrem/commit/b68298168fa43440920ed81355bd368209386a49
+|
+
+光伏组件出口量同比增 20%，欧洲、中东、拉美为主要市场。
+
+人民币汇率小幅波动，5 月 20 日在岸收于 7.18 附近，跨境资金流动平稳。
+
+| 来源：https://github.com/CSDQk9/krjpik/commit/6626f76a8d34b05edb33a9be8ab97620adb1dc24
+|
+
+恒实科技虚拟电厂运营，工商业用户聚合，峰谷套利收益增长。
+
+轻量化 AI 模型适配老年机，老年群体轻松使用智能语音功能。
+
+| 来源：https://github.com/ipdI609/gwqqjk/commit/39e5c2d6c7cb8fcc163f848828f448fdc5e85ea8
+|
+
+紫光展锐 V210 芯片发布，手机端侧 AI 能力增强，性价比突出。
+
+金山云 AI + 游戏云协同，算力租赁、云游戏，营收改善。
+
+| 来源：https://github.com/GkEF75/clwwet/commit/e2b713b4d37b81ad87b7f4622cfe1bb0d106817e
+|
+
+上海目标 2025 年末 10 万台人形机器人进工厂，智能制造提速。
+
+同城生鲜配送行业内卷放缓，行业逐步回归良性盈利发展模式。
+
+| 来源：https://github.com/hFHt766/kexnvp/commit/cc4ecfb0f2a8e1298c80438ddb82a0c348f5fd6a
+|
+
+人造太阳进展加速，中国环流器二号 M 装置等离子体温度创新高。
+
+OpenAI 推送 GPT-5.5 全量版，幻觉率降 52.5%、推理提速 3 倍，安全能力升级。
+
+| 来源：https://github.com/yajidi447/fscihy/commit/a62c1b81d11b82486cdf6dc54ef6dab76fc8ae1f
+|
+
+固德威户用逆变器全球第一，欧洲市场份额提升，储能配套增长。
+
+地平线征程 6 芯片发布，自动驾驶感知能力提升，成本下降 20%。
+
+| 来源：https://github.com/licuhu322/qrjhjc/commit/1b3120abbd1a34b148ebf376390f9ddf3feeae9d
+|
+
+基金持仓 AI 分析，重仓股、行业配置、风格漂移，透明度提升。
+
+航运运价指数企稳回升，外贸海运订单环比持续增加。
+
+| 来源：https://github.com/ImkqK17/pyixhn/commit/b4780a5c609aaa8d055c0b7e270c9322510dc652
+|
+
+浪潮云政企市场发力，AI 服务器 + 云计算，信创领域订单增长。
+
+智能传感技术迭代，AI + 传感器，工业、汽车、医疗、家居感知升级。
+
+| 来源：https://github.com/xajoze881/pesvox/commit/157fc109b9ff9e70368716c9076826fe44b90f47
+|
+
+预制食材配送体系完善，连锁餐饮降本增效效果显著。
+
+功率半导体迎来高景气，新能源汽车、光伏、风电驱动，IGBT/MOSFET 放量。
+
+| 来源：https://github.com/fifJ592/vyejrt/commit/5ab87282a968f8146baa92b41e4d03d2b0f7a322
+|
+
+氢能储运技术突破，液氢运输成本下降，商业化应用临近。
+
+Meta Quest 3 热销，AI 内容生成、性价比高，消费级 VR 份额第一。
+
+| 来源：https://github.com/ichvpT-paxf44/wxjsnv/commit/6f623eaf6d36807ac004bcfa1e9b13cc72f99712
+|
+
+上海目标 2025 年末 10 万台人形机器人进工厂，智能制造提速。
+
+北方华创沉积设备迭代，国产替代加速，先进制程设备放量。
+
+| 来源：https://github.com/CSDQk9/lzkclk/commit/36c3380d93ba07e8ff970fd10099a0a4678f89ba
+|
+
+日本恩格尔系数创新高，物价上涨挤压居民消费空间。
+
+vivo X Fold3 迭代，大屏折叠、AI 办公，商务用户渗透率提升。
+
+| 来源：https://github.com/GkEF75/kgekfj/commit/cbb5739c1697dbf43de931d1183226d185840d89
+|
+
+外汇市场 AI 交易，汇率预测、套利策略、风险对冲，机构应用增加。
+
+中材科技风电叶片市占率全球第一，大型化、轻量化，适配 16MW 机组。
+
+| 来源：https://github.com/ipdI609/bgkiwz/commit/29fbad80ec25290f4e357238a7bf38578ddd432e
+|
+
+AI 降噪技术普及，耳机家电等产品静音效果全面优化。
+
+保险车险费率优化，私家车投保成本出现小幅下调。
+
+| 来源：https://github.com/yajidi447/dtsayl/commit/b1b5f092d7dbaf26852e47923ecb9fb3b094beb4
+|
+
+九章四号光量子计算原型机问世，千量子输入，算力创纪录。
+
+量子精密测量落地，地质勘探、资源探测、环境监测应用。
+
+| 来源：https://github.com/hFHt766/nlgkmn/commit/c917b99ad8cccbbeab13857469ddc7e2786ca040
+|
+
+矩阵超智发布 MATRIX-3 人形机器人，170cm 身高、灵巧手，标准版 58 万元。
+
+纳斯达克中国金龙指数小幅收涨，万物新生涨超 11%，中概股分化明显。
+
+| 来源：https://github.com/ImkqK17/yuzzfq/commit/d6358d8bc3d11e698ca375fc64ac22097000d824
+|
+
+超级高铁概念验证，真空管道 + 磁悬浮，未来交通新形态探索。
+
+同城货运运价趋于稳定，城乡物资运输流通更加顺畅。
+
+| 来源：https://github.com/licuhu322/ixzyrg/commit/08f0e8a6759cfeea011504c2a800e93456c92b0f
+|
+
+米哈游 AI 游戏引擎升级，画质提升、开发降本，新作预期高。
+
+数字人民币试点扩大，线上线下场景融合，支付便捷性提升。
+
+| 来源：https://github.com/xajoze881/wwueqj/commit/0c5e36dcf3d757cf4651d76cb88c0fe661948c3e
+|
+
+央行、财政部等扩围技改贷款，AI 设备、软件服务纳入支持范围。
+
+锦浪科技储能逆变器迭代，效率提升、成本下降，海外放量。
+
+| 来源：https://github.com/fifJ592/mjdrnd/commit/357aaf16bac1c9106a45bfacf6c36fb80c5c3296
+|
+
+工程机械销量回暖，基建开工带动设备采购需求回升。
+
+银企对接活动密集开展，解决中小企业融资难题。
+
+| 来源：https://github.com/ichvpT-paxf44/qojnzh/commit/91236b42b3d3c663f0312805deaa0ab086d068e2
+|
+
+新一代无线充电技术落地，远距离隔空充电正式走入民用。
+
+同城货运运价趋于稳定，城乡物资运输流通更加顺畅。
+
+| 来源：https://github.com/CSDQk9/rembwn/commit/c57612a9fc6f0cf6b3db41b236ae7abf49d45c80
+|
+
+期货市场农产品合约活跃，气候因素影响粮油价格走势。
+
+创投母基金加大出资力度，赋能中小科创企业成长发展。
+
+| 来源：https://github.com/GkEF75/zpjqyg/commit/85c2f96c93e5dee05afb4be9ead9457f150ab0f0
+|
+
+运达股份陆上风电整机性价比优势突出，三北地区装机放量。
+
+浪潮 AI 服务器市占率提升，国内第一，海外市场拓展加速。
+
+| 来源：https://github.com/ipdI609/hyachm/commit/99929e3347eab7e9e14f26ed5a298ce3a5aef9ce
+|
+
+县域消费市场发力，家电下乡政策拉动下沉市场消费增长。
+
+保险车险费率优化，私家车投保成本出现小幅下调。
+
+| 来源：https://github.com/yajidi447/hzkrgg/commit/61363741350a2d743e9c3acc91fbe966e0adcbf1
+|
+
+纳斯达克中国金龙指数小幅收涨，万物新生涨超 11%，中概股分化明显。
+
+Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 AI 大模型。
+
+| 来源：https://github.com/hFHt766/dabhys/commit/76675c16b3fa79e1d634d6464d72ffdddd00f875
+|
+
+银联国际 AI 跨境支付平台升级，覆盖全球 170 + 国家，交易效率提升。
+
+长江存储启动 A 股上市辅导，存储行业缺货预计延续至 2027 年。
+
+| 来源：https://github.com/ImkqK17/pboryr/commit/a1f2ff87487b442ed39c03c1eaf534e34cb2b661
+|
+
+量子精密测量落地，地质勘探、资源探测、环境监测应用。
+
+中国人寿 AI 风控升级，欺诈识别能力增强，赔付率优化。
+
+| 来源：https://github.com/licuhu322/nikvel/commit/3aab18faf19d2d84b4402ff2d13eb90d6ddb872b
+|
+
+拼多多 AI 农产品推荐、直播带货，助农增收，订单增长。
+
+华润微功率半导体产能扩张，IGBT/MOSFET 放量，新能源汽车拉动需求。
+
+| 来源：https://github.com/xajoze881/mizaol/commit/556150dd1e44f1c8f19f00ea1d93c1df94d2dcb2
+|
+
+华泰证券 AI 风控系统商用，风险识别准确率提升，合规成本下降。
+
+元宇宙热度回升，AI+VR/AR 融合，虚拟社交、办公、娱乐落地。
+
+| 来源：https://github.com/fifJ592/vgdpcw/commit/c5287d251cf3661e5005fed4ed98f3c3d7b24c3d
+|
+
+### 六、金融 / 支付 / 理财（341–400）
+量子传感技术突破，量子雷达、量子导航、量子成像精度提升。
+
+| 来源：https://github.com/ichvpT-paxf44/fzvdpa/commit/b0a2c300ac86d51fd192e70a559b21c3dc05b532
+|
+
+日本恩格尔系数创新高，物价上涨挤压居民消费空间。
+
+二氧化碳捕集利用技术成熟，AI 优化，碳中和目标推进。
+
+| 来源：https://github.com/CSDQk9/etmozs/commit/7f8d7e530dd9a7f79a1bfe4b68ddad28c0e1e776
+|
+
+极地科考 AI 赋能，智能设备、无人船、无人机，数据采集效率提升。
+
+工信部深化 AI + 制造专项，支持智能网联汽车、人形机器人等领域。
+
+| 来源：https://github.com/GkEF75/qqwrzu/commit/1a1824f50db0489f748a833b28709e671d08c55f
+|
+
+纳斯达克中国金龙指数小幅收涨，万物新生涨超 11%，中概股分化明显。
+
+虚拟直播间搭建门槛降低，实体商家轻松开启线上直播带货。
+
+| 来源：https://github.com/ipdI609/ipbweg/commit/daff63db85ea400207b4adc29032390f5431bd78
+|
+
+商业航天企业密集融资，卫星互联网、火箭发射、太空旅游加速。
+
+网络云游戏体验升级，低配设备流畅运行大型端游大作。
+
+| 来源：https://github.com/yajidi447/spdvqf/commit/1f920b5370562b31f64bc74eef89aa0082232327
+|
+
+户用储能海外高景气，欧洲能源危机后渗透率提升，出口增长。
+
+城市智慧停车系统联网，全城空余车位一键快速查找。
+
+| 来源：https://github.com/hFHt766/kddcbx/commit/91867169f60c2f324e5139878a8f0f86017028cb
+|
+
+苹果 A18 Pro 芯片发布，3nm 工艺、算力提升，iPhone 17 系列搭载。
+
+少儿智能早教机器人更新，趣味互动助力孩童启蒙学习。
+
+| 来源：https://github.com/ImkqK17/vrrxcy/commit/7b2e062d8f93dfb3f3de3a4b972af4a77f722059
+|
+
+## 二、民生社会
+北京君正存储芯片 + CPU 协同，工业控制、车载场景渗透率提升。
+
+家用智能扫地机器人升级，全屋自动清扫避障能力更强。
+
+| 来源：https://github.com/xajoze881/mbxjse/commit/d9fa54f38368d5c0eb9a135ef5a4aba2cc1c1aa2
+|
+
+湖南广电 AI 主播上岗，人机协同播报，效率提升、成本下降。
+
+国盾量子量子加密芯片量产，金融、政务、通信安全防护强化。
+
+| 来源：https://github.com/fifJ592/sapoea/commit/9a903bcec9963229bd69c6d2bd49cf10eaee4ee6
+|
+
+国家发改委印发法治护航民营经济行动方案，优化民企发展环境。
+
+无人机技术升级，AI + 避障 + 长续航，物流、农业、测绘、巡检普及。
+
+| 来源：https://github.com/ichvpT-paxf44/dehjrp/commit/e38856a4aacefdebeedc69626f9cdd090fd30117
+|
+
+云端算力共享平台上线，中小企业低成本租用高端算力。
+
+氢能储运技术突破，液氢运输成本下降，商业化应用临近。
+
+| 来源：https://github.com/CSDQk9/ckzxjt/commit/d85742bffa8da659f3bcd46af7668a02453b95a9
+|
+
+蔚来换电站数量超 2000 座，全球最大换电网络，用户体验优化。
+
+户外露营装备销量持续走高，户外休闲消费市场持续升温。
+
+| 来源：https://github.com/GkEF75/cctkil/commit/772fed03807f714506ac5570973762dd1110d393
+|
+
+中美 AI 官方对话启动，管控风险、避免冲突、务实合作。
+
+黄金 ETF 持仓持续增加，全球央行购金热情不减。
+
+| 来源：https://github.com/ipdI609/bvuuht/commit/7bcbc6a063d10bb66fc614c41ad261f732a57730
+|
+
+县域文旅小镇持续引流，带动周边乡村经济协同发展。
+
+超材料应用拓展，隐身、通信、能源、医疗，颠覆性技术落地。
+
+| 来源：https://github.com/yajidi447/itltiq/commit/c78030a204a481d95c6964b8b4bcd2e079f15b7f
+|
+
+互联网企业 ESG 表现提升，绿色算力、低碳运营、社会责任强化。
+
+全球海上风电装机量同比增 30%，中国沿海省份密集开工。
+
+| 来源：https://github.com/hFHt766/ndziuc/commit/32c1fe55930aa8c69856bc76b6205b7472c04388
+|
+
+开源大模型社区活跃，国产模型开源数量同比增 200%。
+
+同城货运运价趋于稳定，城乡物资运输流通更加顺畅。
+
+| 来源：https://github.com/licuhu322/bwyhnl/commit/54d1064f770172d17d63cab23589d1e8a3816e6f
+|
+
+中创新航圆柱电池量产，适配新能源汽车、储能，订单增长。
+
+新加坡加码 AI 布局，英伟达将落地本地研发中心，亚太第二处。
+
+| 来源：https://github.com/ImkqK17/wpsqju/commit/f39dc935e29e127d4d1edd4717c0a249fb3553fe
+|
+
+百度智能云文心一言赋能，政企 AI 解决方案，订单增长。
+
+氢能储运技术突破，液氢运输成本下降，商业化应用临近。
+
+| 来源：https://github.com/xajoze881/aqnfuk/commit/42cb67bd5127cddc93de4061fbeacb8237303b86
+|
+
+天合光能 210mm 组件量产，大尺寸、高功率，地面电站适配。
+
+人民币汇率小幅波动，5 月 20 日在岸收于 7.18 附近，跨境资金流动平稳。
+
+| 来源：https://github.com/fifJ592/weaosu/commit/19dcc5b37a9b2a687c67f763c1e4a84d28c63d14
+|
+
+移动端 AI 修图算法优化，手机修图媲美专业电脑效果。
+
+京东科技 AI 供应链金融，中小微企业融资便捷，坏账率下降。
+
+| 来源：https://github.com/ichvpT-paxf44/fvsapq/commit/a5cc0ef42fda5fe947928545536bae3b7aebf312
+|
+
+台积电 3nm AI 芯片量产，良率提升、成本下降，头部客户订单饱满。
+
+城市智能灭蚊系统布局，公共场所智能消杀蚊虫优化环境。
+
+| 来源：https://github.com/CSDQk9/qeojlq/commit/3c41e806b63fa5e9b0694f273cc098099c5fa6d6
+|
+
+银河航天低轨宽带卫星量产，互联网覆盖偏远地区，成本下降。
+
+户外用品销量大涨，露营徒步相关消费市场持续火爆。
+
+| 来源：https://github.com/GkEF75/buzonc/commit/06952d7e7dfd464013a47c8fce02a3e860f73aa3
+|
+
+北京中关村 AI 产业集群，大模型、芯片、算力、应用全链条完善。
+
+星河动力谷神星一号火箭批量发射，小型卫星入轨，性价比高。
+
+| 来源：https://github.com/ipdI609/noswpm/commit/266a597504996753d543d1ce45090f68964e2c33
+|
+
+养老金融产品上新，适配中老年群体理财需求增多。
+
+开源生态繁荣，AI 大模型、工具链开源，开发者协作创新加速。
+
+| 来源：https://github.com/yajidi447/yyutzq/commit/ce29546bfb940a701209802f9b9b575623e75fee
+|
+
+水利工程集中开工，水利建设产业链上下游同步受益。
+
+亿纬锂能大圆柱电池商用，4680 规格，特斯拉、宝马订单落地。
+
+| 来源：https://github.com/hFHt766/jdsibc/commit/8008fb93deac14504268b8b1761dfeee3b052c62
+|
+><br>
